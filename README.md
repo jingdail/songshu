@@ -9,4 +9,4 @@
 
 ##公众号二维码
 
-![松鼠线报公众号](https://www.baidu.com/img/flexible/logo/pc/result@2.png)
+![松鼠线报公众号](https://s1.ax1x.com/2020/10/11/0cyJd1.jpg)
