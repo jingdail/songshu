@@ -9,4 +9,4 @@
 
 ##公众号二维码
 
-![avatar](https://github.com/jingdail/songshu/blob/main/wechat.png)
+![松鼠线报公众号](https://www.baidu.com/img/flexible/logo/pc/result@2.png)
